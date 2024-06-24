@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @tamirenaephotoandfilms
 - 👀 I’m an elopement photographer in Montana 
-- 🌱 I’m currently learning how to create some sort of app.
-- 💞️ I’m looking to collaborate on 
+- 🌱 I’m currently learning how to create some sort of storytelling/photography app.
+- 💞️ I’m looking to collaborate on photography projects.
 - 📫 How to reach me through my website https://tamirenae.com
 - 😄 Pronouns: she, her, hers
 - ⚡ Fun fact: I had a friendly neighborhood moose that let me pet her. Kinda crazy I know.
